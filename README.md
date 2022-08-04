@@ -1,4 +1,4 @@
-<img align="center" src="Keerthana Sathyakumar.png"/>
+<img align="center" src="https://media.giphy.com/media/RbDKaczqWovIugyJmW/giphy.gif"/>
 
 ### Hey amigos 😁✨, Keerthana here!
 
